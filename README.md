@@ -4,7 +4,4 @@
 💞️ I’m looking to collaborate on projects that align with good values and creative innovation.
 📫 How to reach me: https://www.instagram.com/sofia.baldera/?hl=es-la or 
    sofiab.baldera@gmail.com
-😄 Pronouns: She/Her
 ⚡ Fun fact: I love creating a sense of community and inspiring others through my passions.
-
-✨ Follow your dreams and make them a reality! ✨
